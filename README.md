@@ -1,2 +1,2 @@
 # HappyBirthdayGF-main
-joyeux anniversire 
+joyeux anniversaire 
